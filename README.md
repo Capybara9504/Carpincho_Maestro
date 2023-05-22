@@ -1,2 +1,2 @@
-# Carpincho_Maestro
-Cultura y Subcultura
+# Cultura y Subcultura
+por:Carpincho_profesor
